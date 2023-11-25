@@ -10,7 +10,7 @@ I've been working since birth
 * ✉️  You can contact me at [ca1920.anas@gmail.com](mailto:ca1920.anas@gmail.com)
 * 🧠  I'm learning Best practices
 * 🤝  I'm open to collaborating on projects
-* ⚡  i'm secretly messi don't tell any one
+* ⚡  i'm secretly ronaldo lover don't tell any one
 
 ### Skills
 
